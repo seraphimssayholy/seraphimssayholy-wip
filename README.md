@@ -48,3 +48,5 @@ width="35"/>
 <img src="Tak berjudul301_20260114212349.png" 
 width="35"/>
 </p>
+
+listening to: [snowman - Sia](https://open.spotify.com/track/7uoFMmxln0GPXQ0AcCBXRq?si=Whdfm4g7Q5aJ_dPbDXIx6Q)
