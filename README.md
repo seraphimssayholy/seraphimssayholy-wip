@@ -14,7 +14,8 @@
 >$\color{#2F3E5C}{\textsf{⊹₊⟡⋆ 𝗙𝗬𝗜 :}}$
 
 <p align="center">
-  $\color{#2F3E5C}{\textsf{I'd love to interact}}$
+  $\color{#2F3E5C}{\textsf{I'd love you}}$
+  $\color{#2F3E5C}{\textsf{interact}}$
   $\color{#2F3E5C}{\textsf{but make it safe}}$
 $\color{#2F3E5C}{\textsf{and polite.}}$
 $\color{#2F3E5C}{\textsf{C+H is ok.}}$
