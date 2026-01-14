@@ -28,6 +28,7 @@ $\color{#2F3E5C}{\textsf{your boundaries for that}}$
 >$\color{#2F3E5C}{\textsf{⊹₊⟡⋆ 𝗗𝗡𝗜 :}}$
 <p align="center">
   $\color{#2F3E5C}{\textsf{Swear to ragebait,}}$
-  $\color{#2F3E5C}{\textsf{ Rude or fake sweet}}$
+  $\color{#2F3E5C}{\textsf{ rude or fake sweet}}$
 $\color{#2F3E5C}{\textsf{ (dislike this, go away), }}$
-$\color{#2F3E5C}{\textsf{ Rascist.}}$
+$\color{#2F3E5C}{\textsf{ rascist and}}$
+$\color{#2F3E5C}{\textsf{copycat}}$
