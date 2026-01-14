@@ -32,3 +32,6 @@ $\color{#2F3E5C}{\textsf{your boundaries for that}}$
 $\color{#2F3E5C}{\textsf{ (dislike this, go away), }}$
 $\color{#2F3E5C}{\textsf{ rascist and}}$
 $\color{#2F3E5C}{\textsf{copycat}}$
+
+>$\color{#2F3E5C}{\textsf{⊹₊⟡⋆ 𝗠𝗬 𝗖𝗢𝗠𝗙𝗦'^^ :}}$
+
