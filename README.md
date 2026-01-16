@@ -31,7 +31,7 @@ $\color{#2F3E5C}{\textsf{your boundaries for that}}$
 <p align="center">
   $\color{#2F3E5C}{\textsf{Swear to ragebait,}}$
   $\color{#2F3E5C}{\textsf{ rude or fake sweet}}$
-$\color{#2F3E5C}{\textsf{ (dislike this, go away), }}$
+$\color{#2F3E5C}{\textsf{ (go away,ugh), }}$
 $\color{#2F3E5C}{\textsf{ rascist and}}$
 $\color{#2F3E5C}{\textsf{copycat}}$
 
